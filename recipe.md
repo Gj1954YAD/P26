@@ -1,0 +1,1 @@
+Heat a bread. Cut it in half. Add a sausage in the middle. Add some ketchup to it.
